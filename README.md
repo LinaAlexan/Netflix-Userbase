@@ -81,26 +81,12 @@ https://disk.yandex.ru/d/Q6pEUxvay4n3rg
 
 ![26](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/7dd56063-6a58-428f-a48a-63193aedf708)
 
-![31](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/19847bc8-fc3f-4602-ad53-13c3b27d3100)
-![30](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/dc8dcc97-408b-4b74-9622-62249d8ad298)
-![29](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/746c4443-8aa3-49bd-ad18-63de6a237dc2)
+
+
 ![28](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/f3529d65-5be7-404c-ad4c-22fc8ae02459)
 
+![29](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/746c4443-8aa3-49bd-ad18-63de6a237dc2)
 
+![30](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/dc8dcc97-408b-4b74-9622-62249d8ad298)
 
-
-![Uploading 27.png…]()
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+![31](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/19847bc8-fc3f-4602-ad53-13c3b27d3100)
