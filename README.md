@@ -81,7 +81,7 @@ https://disk.yandex.ru/d/Q6pEUxvay4n3rg
 
 ![26](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/7dd56063-6a58-428f-a48a-63193aedf708)
 
-
+![27](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/77f1b790-96c3-427a-bce7-ed60ee1f0a76)
 
 ![28](https://github.com/LinaAlexan/Netflix-Userbase/assets/147400925/f3529d65-5be7-404c-ad4c-22fc8ae02459)
 
